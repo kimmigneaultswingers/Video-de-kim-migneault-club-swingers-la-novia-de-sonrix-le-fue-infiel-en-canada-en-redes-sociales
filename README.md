@@ -2,6 +2,16 @@
 
 Recientemente las plataformas de redes sociales han sido testigos de los rumores generados en torno a Kim Migneault y su infidelidad a Sonrix en un club canadiense conocido como Swingers, en el que los usuarios supuestamente captaron a la joven y filtraron el video que muestra las escenas.
 
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
 La posibilidad de que la novia de Sonrix haya sido infiel al también creador de contenido ha desatado una ola de búsquedas en torno al contenido, que pondría en escena a la creadora de contenido canadiense conocida como Kim Migneault.
 
 Aunque los hechos todavía están basados en especulaciones, ha sido suficiente para poner el nombre de Kim en manifiesto, generando un amplio debate en la plataforma de X (antes Twitter) donde han surgido publicaciones referentes al escándalo.
